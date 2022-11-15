@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sculerriguar1
+- 👀 I’m interested in sport
+- 🌱 I’m currently learning football
